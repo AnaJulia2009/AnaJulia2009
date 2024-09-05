@@ -1,2 +1,2 @@
-Eu não se4i oquedizerdó to aqui por causada escola.
+Eu não sei oque dizer só to aqui por causada escola.
 A
